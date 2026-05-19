@@ -1,1 +1,0 @@
-# divyakala-architecture
